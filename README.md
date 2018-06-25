@@ -1,0 +1,1 @@
+# 2018_INFORMS_StudentTeamCompetition
